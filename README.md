@@ -13,4 +13,4 @@ I'm offtab
 --_* ( ure an broken heart ure an amazing person!!😍)
 --> dumb?.. ure lookin smart!.."
 "ure not just a dumb PERSON URE an angel!"
-○⊙ NOW I helped yo GIVE ME 600 RUBUXS😡
+○⊙ NOW I helped yo GIVE ME 600 RUBUXS😡.
