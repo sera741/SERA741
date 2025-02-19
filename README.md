@@ -1,16 +1,16 @@
 ## Hi there 👋
 
 <!--
-**sera741/SERA741** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**sera741/SERA741** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.--
+I'm offtab
+- hehe!
+->> 😔 dnc any idea or designs I've done 
+-> 😤 u can int w me !
+--[ 😐 bored? same!! ]
+~ 🙂 being useless is nothing for an jerk??
+# - 😄 [ ure useful for everything not a noob can!~
+- `-犹如送 好哦他 让你~
+--_* ( ure an broken heart ure an amazing person!!😍)
+--> dumb?.. ure lookin smart!.."
+"ure not just a dumb PERSON URE an angel!"
+○⊙ NOW I helped yo GIVE ME 600 RUBUXS😡
