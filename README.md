@@ -1,16 +1,27 @@
-## Hi there 👋
+<p align="center">
+  <!-- Top decorative wave spacing -->
+  <font color="#ffb7c5">.·͙*̩̩͙˚̩̥̩̥ ⌁☊⌁ ˚̩̥̩̥*̩̩͙‧͙</font>
+</p>
 
-<!--
-**sera741/Sera741** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <!-- Your Fluttershy Collage Image -->
+  <img src="https://ibb.co" width="400" alt="Profile Banner" style="border-radius: 15px;">
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <!-- Frequency wave boundary lines -->
+  <font color="#ffb7c5">
+    ⋆⁺₊⋆ ⌁☊⌁ ⋆⁺₊⋆ ‧ ⌁☊⌁ ‧ ⋆⁺₊⋆ ⌁☊⌁ ⋆⁺₊⋆
+  </font>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  If you, <br>
+  <a href="YOUR_RENTRY_LINK">rentry</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; dont like me now, <br>
+  <a href="YOUR_ATABOOK_LINK">atabook</a> <br>
+  <font color="#ff7b90">I will <b>change</b> for you.</font>
+</p>
+
+<p align="center">
+  <font size="2" color="#b5b5b5">all art by missrossweisse on x</font>
+</p>
