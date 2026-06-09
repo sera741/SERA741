@@ -52,7 +52,7 @@ c+h is comfortly Allowed! i dont mind it at all, in fact Im actually comfortable
 
 > If your feeling uncomfortable with me say it out, I respect everyone's privacy and Boundaries.
 
-> Erm uhhh might be a little Obsessed with griefer **block tales** <img width="719" height="603" alt="1000071985" src="https://github.com/user-attachments/assets/a998b268-42b7-48ca-8e8a-e9fdb2767db2" />
+> FICTIONKIN -- Griefer **block tales** idk i find em cool 🥀<img width="719" height="603" alt="1000071985" src="https://github.com/user-attachments/assets/a998b268-42b7-48ca-8e8a-e9fdb2767db2" />
 
 
 : End ❄️
